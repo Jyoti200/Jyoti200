@@ -1,7 +1,7 @@
 # Hi, I'm Jyoti 👋
 
 **Data Analyst · BI Developer · Automation Specialist**  
-Jaipur, Rajasthan · 📧 jvyas114@gmail.com · [Website]· [Blogs](#)
+Jaipur, Rajasthan · 📧 jvyas114@gmail.com · [Website](https://fynsignal.co.in/)· [Blogs](https://jyoti03.medium.com/)
 
 ---
 
