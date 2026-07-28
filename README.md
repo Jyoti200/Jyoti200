@@ -142,7 +142,7 @@ I'm interested in opportunities involving:
 * AI & Workflow Automation
 * Operations Analytics
 
-📫 **Email:** [jyotivyasda@gmail.com](mailto:jyotivyasda@gmail.com)
+📫 **Email:** [jvyas114@gmail.com](mailto:jvyas114@gmail.com)
 
 ---
 
